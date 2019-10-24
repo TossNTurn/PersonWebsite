@@ -1,2 +1,7 @@
 # PersonWebsite
-Personal Website In Progress
+Personal Website is still in the middle of being created.
+
+
+          - In Progress -
+         
+_________________________________________________________++++
